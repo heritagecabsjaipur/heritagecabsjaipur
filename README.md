@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @heritagecabsjaipur
+- 👋 Hi, I’m @heritagecabs
 - 👀 I’m interested in rental cabs services in jaipur.
 - 📫 contact us : +91-9929655551  info@heritagecabs.in
 
